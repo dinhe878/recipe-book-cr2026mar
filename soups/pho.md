@@ -15,6 +15,7 @@
 - 1 tsp salt
 - 200 g rice noodles
 - Toppings: sliced beef, fresh herbs (cilantro, Thai basil), bean sprouts, lime wedges, chili, hoisin sauce
+- 1 jar of MAYONAISE!!!!
 
 ## Instructions
 
