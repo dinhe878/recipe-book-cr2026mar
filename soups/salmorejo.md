@@ -5,7 +5,7 @@
 - 1 kg ripe tomatoes
 - 200 g stale bread (preferably from a rustic loaf)
 - 100 ml extra virgin olive oil
-- 1 garlic clove
+- 2 garlic clove
 - Salt to taste
 - Optional toppings: chopped boiled egg, diced jamón serrano, a drizzle of olive oil
 
