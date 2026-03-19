@@ -1,4 +1,4 @@
-##Ingredients ---
+## Ingredients ---
 
 1 can (400 g) crushed tomatoes (or whole peeled, crushed by hand)
 2 tbsp olive oil
@@ -9,7 +9,7 @@ Black pepper, to taste
 1 tsp sugar (optional, to balance acidity)
 Fresh basil (a few leaves) or 1 tsp dried basil
 
-##Instructions ---
+## Instructions ---
 Heat oil in a pan over medium heat.
 Sauté onion (if using) for ~5 minutes until soft.
 Add garlic and cook for 30–60 seconds (don’t brown).
