@@ -22,3 +22,7 @@
 #I made some changes here
 #I made more changes here
 change something
+- Boil pasta in a large pot of well-salted water (to taste, but 3-5 g/L is a good starting point).
+- Roast mushrooms, and sauté onions
+- Add pancetta and peas and roast for a bit
+- Toss all together and enjoy.
